@@ -3,4 +3,10 @@
 </p>
 <p align="center">
  𓏲 ๋࣭ ࣪ ˖🎐𓂃 🪷
+</p> 
+<p align="center">
+  <img src="https://github.com/nuharharhar/nuharharhar/blob/main/download%20(1).gif?raw=true" width="500">
+</p>
+<p align="center">
+ ₊˚.🌹⋆⁺₊
 </p>
